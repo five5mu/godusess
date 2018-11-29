@@ -12,7 +12,7 @@
 > 3. 我们会在上面表格持续更新最新地址，防走丢，请收藏本链接！
 > 4. 防走丢：https://github.com/five5mu/godusess/blob/g/g.md
 
-#### 🚀永久域名：godusess.com（已被墙，需要开启全局代理访问。）
+#### 永久域名：godusess.com（已被墙，需要开启全局代理访问。）
 
 ### 联系我们
 
