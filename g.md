@@ -16,6 +16,6 @@
 
 > 建议老用户牢记永久域名，然后每次续费提前几天。
 
-### D7 Networks
+### D7 Networks Ltd.
 
 > 邮箱：five5mu@gmail.com
